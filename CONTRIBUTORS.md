@@ -1,1 +1,0 @@
-Real contributors: Leticia Ducatti
